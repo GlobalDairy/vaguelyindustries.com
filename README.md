@@ -1,2 +1,2 @@
-# [vaguelyindustries.com](http://vaguelyindustries.com "Vaguely Industries")
+# vaguelyindustries.com
 vaguely an industry since 2016.
